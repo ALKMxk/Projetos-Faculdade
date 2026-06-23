@@ -63,4 +63,4 @@ Para criar soluções completas e eficientes.
 ## Contato
 
 📧 (Lucasalkmim512@gmail.com)  
-💼 LinkedIn: (Lucas calegarine)
+💼 LinkedIn: (https://www.linkedin.com/in/lucas-calegarine-5431a126a)
